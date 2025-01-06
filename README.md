@@ -19,3 +19,5 @@ O conteúdo tanto do chatgpt quando do gamma foi além do que eu esperava, muito
 
 ## 💭 Reflexão (Opcional)
 Foi um desafio muito legal, colocar em prática tudo que estamos aprendendo e aprender muito mais ao utilizar as ferramentas tem sido muito bom.
+
+E-book: https://gamma.app/docs/Vida-com-Proposito-Estrategias-para-o-Bem-Estar-Mental-otspg43zho37bqu?mode=doc
